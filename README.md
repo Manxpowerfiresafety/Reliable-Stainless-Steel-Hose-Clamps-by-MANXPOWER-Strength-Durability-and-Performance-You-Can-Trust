@@ -14,3 +14,15 @@ Designed for quick installation with standard tools, MANXPOWER hose clamps save 
 Professionals across multiple industries rely on MANXPOWER for hose clamping solutions that perform under pressure. With a commitment to product excellence and customer satisfaction, MANXPOWER has become a trusted name in fastening technology.<br>
 <h3>Conclusion</h3>
 If you're seeking hose clamps that combine strength, reliability, and ease of use, MANXPOWER <a href="https://manximpex.com/hose-clamps/" title="stainless steel hose clamps" alt"stainless steel hose clamps" <a>stainless steel hose clamps</a> are the ideal choice. Engineered for performance and built to last, MANXPOWER is your go-to brand for secure connections that stand the test of time. Choose MANXPOWER—because every detail matters.<br>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/hose-clamps/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation: https://manximpex.com/hose-clamps-india/ </b>
